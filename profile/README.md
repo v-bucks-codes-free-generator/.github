@@ -4,9 +4,9 @@
 
 19 seconds ago - V-Bucks Claim your V Bucks Package by filling out the form below: Please note Fortnite V-Bucks Claim your V Bucks Package by filling out the form below: Please note that you can only use this generator once every 1 hours so that Epic Games doesn't get suspicious. vbucks code generator, fortnite v buck generator updated
 
-CLICK HERE TO GET FREE NOW
+[**🔴► CLICK HERE TO GET FREE NOW 🌍**](https://genarator.store/vbucks.html)
 
-CLICK HERE TO GET FREE NOW
+[**🔴► CLICK HERE TO GET FREE NOW 🌍**](https://genarator.store/vbucks.html)
 
 Fortnite Emotes Codes
 T is the code that can be redeemed for special emote:
